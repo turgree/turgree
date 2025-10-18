@@ -3,4 +3,4 @@
 ![romano-spain](https://github.com/user-attachments/assets/abf4b691-012c-411c-bbb1-8f6166cc157e)
 
 ![](https://komarev.com/ghpvc/?username=gambling-addict&abbreviated=tru&color=b47c64)
-⠀ <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://rentry.co/pan4asim//>rentry</a> ⠀ <a href=https://pronouns.cc/@fi4nism>prns.</a>
+⠀ <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://rentry.co/pan4asim//>rentry</a> ⠀ <a href=https://pronouns.cc/@niniturk>prns.</a>
