@@ -5,8 +5,9 @@ $${\color{#63736d}⠀⠀⠀⠀⠀⠀⠀⠀check⠀ **links**⠀⠀⠀⠀⠀⠀�
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2e1c8075-5496-4a7b-a9bb-ba8accf22f8e" />
 
-⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ <img width="736" height="574" alt="image" src="https://github.com/user-attachments/assets/1a0f2f63-dc19-4ff0-9e11-c016b7eb9419" />
+⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀  ⠀⠀  ⠀⠀  ⠀ <img width="552" height="431" alt="509165892-1a0f2f63-dc19-4ff0-9e11-c016b7eb9419 (2)" src="https://github.com/user-attachments/assets/06a13575-1fbf-4c62-bedb-9fd7a4c9b392" />
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ![](https://komarev.com/ghpvc/?username=gambling-addict&label=turks.&abbreviated=tru&color=8ea3a3)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ![](https://komarev.com/ghpvc/?username=gambling-addict&label=turks.&abbreviated=tru&color=8ea3a3)
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀<a href=https://tenor.com/es-US/view/romano-spain-hetalia-best-friends-gif-3117962468463185115//>angel <3</a> ⠀ <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://rentry.co/pan4asim//>rentry</a> ⠀ <a href=https://pronouns.cc/@niniturk>prns.</a>
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀  ⠀⠀  ⠀<a href=https://tenor.com/es-US/view/romano-spain-hetalia-best-friends-gif-3117962468463185115//>angel <3</a> ⠀ <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://rentry.co/pan4asim//>rentry</a> ⠀ <a href=https://pronouns.cc/@niniturk>prns.</a>
+
