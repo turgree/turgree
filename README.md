@@ -1,6 +1,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31x7nxf2ao2ae5e4d62yclnezpn4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)
 
- ⠀ ⠀  ⠀ ⠀ ⠀  ⠀ ⠀⠀⠀⠀<img width="360" height="78" alt="Captura de pantalla 2025-11-04 142417 (1)" src="https://github.com/user-attachments/assets/a09e9a6e-c267-47d8-8ce9-5e62d6ebb491" />
+⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀<img width="360" height="360" alt="image" src="https://github.com/user-attachments/assets/6395c8a8-4147-4804-a1b0-1e9d1077dff8" />
+
 
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀![](https://komarev.com/ghpvc/?username=gambling-addict&label=turks.&abbreviated=tru&color=001be6)
