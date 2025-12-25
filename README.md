@@ -7,6 +7,6 @@
 ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀![](https://komarev.com/ghpvc/?username=gambling-addict&label=turks.&abbreviated=tru&color=001be6)
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀<a href=https://tenor.com/es-US/view/romano-spain-hetalia-best-friends-gif-3117962468463185115//>angel <3</a> ⠀ <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://rentry.co/pan4asim//>rentry</a> ⠀ <a href=https://pronouns.cc/@niniturk>prns.</a>
+⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀<a href=https://tenor.com/es-US/view/romano-spain-hetalia-best-friends-gif-3117962468463185115//>angel <3</a> ⠀ <a href=https://pannys.atabook.org/>atabook</a> ⠀  <a href=https://pan4asim.straw.page>straw</a>⠀  <a href=https://rentry.co/bloodnlust//>rentry</a> ⠀ <a href=https://pronouns.cc/@niniturk>prns.</a>
 
 
