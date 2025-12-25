@@ -1,4 +1,3 @@
-⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀<a href=https://colormytree.me/2025/01JEP8FT0DFSVHNMG3R09AYC58/>tree</a>
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31x7nxf2ao2ae5e4d62yclnezpn4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)
 
