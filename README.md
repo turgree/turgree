@@ -7,7 +7,8 @@ by
 ⠀ 
 me}$
 
-<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/06228340-7f6c-4ea1-9180-89db984f7816" />
+<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/874ff097-e42b-4914-b4e3-485b9fcdb40b" />
+
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&label=disco-fans.&abbreviated=tru&color=df3521)
 
