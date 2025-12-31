@@ -7,36 +7,10 @@ by
 ⠀ 
 me}$
 
-<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/db5ecaa8-5193-4579-9875-8ec4bc11dad2" />
+<img width="505" height="505" alt="image" src="https://github.com/user-attachments/assets/06228340-7f6c-4ea1-9180-89db984f7816" />
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀  ⠀ ⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&label=disco-fans.&abbreviated=tru&color=df3521)
 
 
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀  ${\color{#FF6816} dont
-⠀
-be 
-⠀
-a 
-⠀
-drag,}$
 ⠀
 
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀  ⠀    ${\color{#FF6816} get
-⠀
-down
-⠀
-and
-⠀
-dance!}$
-⠀
-
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀  ⠀  ⠀  ⠀ ⠀  ${\color{#FF6816} can
-⠀
-you
-⠀
-dig
-⠀
-it?}$
-
-
-⠀
