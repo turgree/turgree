@@ -10,7 +10,7 @@
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀  ⠀ ⠀  ⠀![](https://komarev.com/ghpvc/?username=gambling-addict&label=disco-fans.&abbreviated=tru&color=1e82ac)
 
-⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ <a href=https://youtu.be/UKNN1PT9z7c/>yes</a>
+⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ <a href=https://youtu.be/bKvnw-PCO7M>yes</a>
 
 ⠀
 
